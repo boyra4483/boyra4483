@@ -29,3 +29,5 @@
 скоро будет тот момент, который так мне нужен
 
 the thoughts of killing myself make me feel alive
+
+когда я умру, небеса будут плакать
